@@ -5,7 +5,7 @@ School Email: davidng8@uw.edu
 
 Personal Email: davidngg8@gmail.com
 
-# Work Experience (only last 10 years)
+# Work Experience
 
 #### Starbucks Barista (2019-Present)
 
