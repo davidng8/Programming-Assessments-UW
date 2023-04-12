@@ -7,7 +7,7 @@ Personal Email: davidngg8@gmail.com
 
 # Work Experience (only last 10 years)
 
-#### Starbucks Barista (2018-Present)
+#### Starbucks Barista (2019-Present)
 
 * Website : (http://starbucks.com)
 
