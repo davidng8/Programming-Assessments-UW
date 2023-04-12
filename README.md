@@ -1,4 +1,4 @@
-# David Ng Portfolio
+# Portfolio
 # David Ng
 
 School Email: davidng8@uw.edu
